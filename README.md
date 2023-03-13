@@ -1,0 +1,2 @@
+# Techinology
+ ida tehinology
